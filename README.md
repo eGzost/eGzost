@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @eGzost
+- 👀 I’m interested in playing games
+- 🌱 I’m currently learning at TUM (Moldova)
